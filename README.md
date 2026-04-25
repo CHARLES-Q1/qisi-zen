@@ -4,7 +4,7 @@
 
 ## 性（内在运作规律）
 
-**境界**: 宗师境
+**境界**: 化神境
 **认知领域**: mindfulness attention minimal-cognition
 
 每个腔室有其不可化约的性——事物运行的内在客观规律。
